@@ -32,8 +32,4 @@ My exposure to Agentic AI also allows me to design an innovative, autonomous opt
 
 ---
 
-## Contact
 
-**Supun Narangoda**
-Email: s4150452@student.rmit.edu.au
-Phone: 0490693836 (Australia)
